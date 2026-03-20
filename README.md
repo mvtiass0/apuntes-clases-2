@@ -24,8 +24,7 @@ para hacer viñetas>
  
 [y si es obvio maldita payasa](https://www.google.com/search?sca_esv=4383f7dd9720c753&udm=2&fbs=ADc_l-bpk8W4E-qsVlOvbGJcDwpn60DczFdcvPnuv8WQohHLTaMb_WtLz8zQ41bNqiqMK_0GCDA2eBSrpJajLJh54y7KhefI_dvRXyUnknSrVPAkUhcr_Cu04VQ-0wgsjbsKEaNLu__LBfXucGIw3_KxbbsV2ROQ07JhgjfGoHomj0NXSuj2zFCQelxhAkHsGz6BncX4CORTXmKDT9-TacyXEXC3e_EqWg&q=kali+uchis&sa=X&ved=2ahUKEwik3uKs5q6TAxXNv5UCHdteJ2gQtKgLegQIFhAB&biw=2240&bih=1082&dpr=2)
 
- KALI TU PATRONA [![kali aqui](https://media.revistagq.com/photos/65b20856a499e5874bf0bf11/master/w_1600%2Cc_limit/KALI-UCHIS-marcas_agua4.jpg)
- 
+ KALI TU PATRONA [![kali aqui](https://media.revistagq.com/photos/65b20856a499e5874bf0bf11/master/w_1600%2Cc_limit/KALI-UCHIS-marcas_agua4.jpg)](https://www.youtube.com/watch?v=3aMLZm8ykoE&list=RD3aMLZm8ykoE&start_radio=1) 
     
 
   
